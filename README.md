@@ -1,0 +1,2 @@
+# NIE
+Natural Immunity Exemption
